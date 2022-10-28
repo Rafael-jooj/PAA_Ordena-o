@@ -11,7 +11,7 @@
 
 ![download (1)](https://user-images.githubusercontent.com/38902609/198416058-62e1d8cf-6024-41f9-a549-3a4d99b4d8d1.png)
 
-![download (2)](https://user-images.githubusercontent.com/38902609/198416074-c15207ea-7194-42b8-9555-4cdbc89a21bf.png)
+![download](https://user-images.githubusercontent.com/71270235/198483682-49665160-9cc2-460e-98ea-53420e82b11e.png)
 
 ![i1dNbjH](https://user-images.githubusercontent.com/71270235/198481403-c3e63a74-5c47-4130-8fda-00acb2b1fd84.png)
 
